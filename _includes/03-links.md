@@ -1,1 +1,1 @@
-[Time Traveling](https://www.youtube.com/watch?v=znREJhnlMCc)
+[LinkedIn](https://www.linkedin.com/in/trent-hurlbut/)
