@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. My family 👨‍👩‍👧‍👧
+2. Cooking 🧑‍🍳
+3. Liverpool FC ⚽
+4. Games 🎲
