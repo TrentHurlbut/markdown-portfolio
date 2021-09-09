@@ -1,1 +1,3 @@
-Replace this with your name, and include a header.
+# Learning Markdown!
+## Seems good so far.
+###### We'll see how it works out...
